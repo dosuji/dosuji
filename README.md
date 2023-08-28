@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about ... Rubik's cubes.
 - 📫 How to reach me: ... dosuji@cps.edu
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... my middle school stole 300k from CPS and tried to flee to Mexico.
+- ⚡ Fun fact: ... my middle school principal stole 300k from CPS and tried to flee to Mexico.
 -->
